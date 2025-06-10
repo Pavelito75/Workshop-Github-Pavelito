@@ -1,1 +1,3 @@
+Ceci est la phrase absolue.
+non je crois pas.
 Nouveau conflit pour le projet (1Conflit2Plus)
