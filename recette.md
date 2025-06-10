@@ -1,3 +1,6 @@
+<h2>Introduction :</h2>
+Une super recette de famille transmise de pere en fils!
+
 **Sirop de maïs** : Le sirop de maïs léger permet d'éviter la cristallisation du sucre. Si vous ne pouvez pas le trouver facilement, le sirop d'or ou le sirop de glucose est un bon substitut. Notez que le sirop d'or a une teinte jaune et qu'il risque de donner à vos bonbons une couleur bleu-vert.
 **Sucre cristallisé** : Tous les sucres ne se valent pas. Certains sucres cristallisés sont fabriqués à partir de sucre de canne, d'autres à partir de betteraves. Je préfère de loin utiliser du sucre de canne à 100 % - d'après mon expérience, cela donne des résultats plus fiables et plus cohérents. Si votre paquet de sucre ne le précise pas, il y a de fortes chances qu'il s'agisse de sucre de betterave ou d'un mélange des deux.
 Extrait d'arôme transparent : si vous tenez à obtenir une couleur bleue, comme dans l'émission, vous devez vous assurer que vous utilisez un extrait d'arôme transparent. Les extraits bruns comme la vanille donneront à vos bonbons une teinte jaunâtre. Voir la section Arômes ci-dessous pour une liste de suggestions d'arômes clairs.
